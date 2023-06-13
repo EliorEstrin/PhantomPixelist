@@ -1,5 +1,5 @@
 
-# Welcome, Space Traveler! 🚀 I'm PixelPhantom. 
+# Welcome, Space Traveler! 🚀 I'm PixelPhantom
 
 ![banner](nameBanner.png)
 
