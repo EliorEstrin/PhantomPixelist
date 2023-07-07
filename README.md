@@ -5,7 +5,7 @@
 
 ## Greetings!
 
-Welcome to my corner of the digital galaxy! As PixelSpecter, I am the phantom navigating the infinite cosmos of code, pixels, and tech wonder. Always curious and ready to explore new horizons!
+Welcome to my corner of the digital galaxy! As PhantomPixelist, I am the phantom navigating the infinite cosmos of code, pixels, and tech wonder. Always curious and ready to explore new horizons!
 
 ## Explore My Universe 🌌
 
